@@ -1,0 +1,1 @@
+# Tož taky trochu teorie
